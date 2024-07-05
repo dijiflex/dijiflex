@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **https://twitter.com/dijiflex**
 
-- 📄 Know about my experiences [https://1drv.ms/b/s!Av0wzLnx42iLgcVfQMt9sSVLvn1m1g?e=uojl5m](https://1drv.ms/b/s!Av0wzLnx42iLgcVfQMt9sSVLvn1m1g?e=uojl5m)
-
 - ⚡ Fun fact **I can solve the Rubik's Cube in under 1 minute**
 
 <h3 align="left">Connect with me:</h3>
